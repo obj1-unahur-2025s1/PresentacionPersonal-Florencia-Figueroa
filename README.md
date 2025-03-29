@@ -15,4 +15,5 @@
 -  Tengo una gata llamada Jisoo 🐈 y tres peces. 🐠
 -  Me gusta sacar y editar *fotos* 📷 a cualquier cosa que se me cruce, especialmente si son gatitos.
 
+- Les comparto una fotito de un michi que me encontre en la calle :) 
 ![foto de gato](foto-gato.jpg)
