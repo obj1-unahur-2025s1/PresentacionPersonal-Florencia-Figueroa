@@ -13,6 +13,7 @@
 -  Practique *Taekwondo* 🥋 por casi 4 años pero recientemente lo deje por falta de tiempo.
 -  Mis pasatiempos son jugar *videojuegos* 🎮 tales como el GoW, F1 2024 y Mortal Kombat, tambien suelo pasar la mayor parte del dia escuchando *musica* 🎶 (preferentemente en Ingles.)
 -  Tengo una gata llamada Jisoo 🐈 y tres peces. 🐠
+-  Hace 4 años que estudio ingles 📚.
 -  Me gusta sacar y editar *fotos* 📷 a cualquier cosa que se me cruce, especialmente si son gatitos.
 
 
