@@ -14,3 +14,5 @@
 -  Mis pasatiempos son jugar *videojuegos* 🎮 tales como el GoW, F1 2024 y Mortal Kombat, tambien suelo pasar la mayor parte del dia escuchando *musica* 🎶 (preferentemente en Ingles.)
 -  Tengo una gata llamada Jisoo 🐈 y tres peces. 🐠
 -  Me gusta sacar y editar *fotos* 📷 a cualquier cosa que se me cruce, especialmente si son gatitos.
+
+![foto de gato](foto-gato.jpg)
